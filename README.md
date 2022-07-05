@@ -1,3 +1,2 @@
 # equipo3
-juan jaz
-
+juan jaz Sofi Pereyra
